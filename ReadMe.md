@@ -1,3 +1,3 @@
 # Botw Mods Website
 
-Hopefule of being ArchLeaders' botw mods site
+Hopeful of being ArchLeaders' botw mods site
